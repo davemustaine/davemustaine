@@ -14,7 +14,7 @@ $\texttt{\color{#fae7ac}him ‎ ‎ ‎ ‎‎/ ‎ ‎ ‎ ‎he }$\
 $\texttt{\color{#8B0000}pickles ‎ ♡ ‎ irl}$
 
 
-[rentry](https://rentry.co/davidleeroth)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[ata](https://picklesthedummer.atabook.org/)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[strawpage](https://p1ckles.straw.page)
+[rentry](https://rentry.co/davidleeroth)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[ata](https://picklesthedummer.atabook.org/)$\texttt{\color{#cc7b7e} ‎ ♡ ‎ }$[strawpage](https://picklesvsrehab.straw.page)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzbapuwfx2aeudyk64eo5httaa&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6b2424&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
