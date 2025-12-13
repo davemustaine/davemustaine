@@ -1,5 +1,5 @@
 <p align="center">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=davemustaine&color=5c1010&style=plasic&label=　booze　"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=davemustaine&color=5c1010&style=plasic&label=　scars　"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 </p>
 
 
