@@ -4,12 +4,12 @@
 
 
 <p align="center">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=davemustaine&color=5c1010&style=plasic&label=　scars　"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=davemustaine&color=5c1010&style=plasic&label=　kloks ⋆˚࿔   "> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#c30101}〃}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 </p>
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/tumblr_lre2iep7Ri1qcsioio1_r1_500.gifv" | width=400 style="font-size:"/>
+  <img src="https://media.discordapp.net/attachments/1390773123082747906/1447077837243678761/image0.gif?ex=695ddcc1&is=695c8b41&hm=13bd56d021f18b8569174ec1d093a44cab0a617ade794559a2c0a9c752abfd05&=" | width=400 style="font-size:"/>
 
 
 
@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-⠀ $${\color{#610000}ꜱɪɢɴ ꜱᴛʀᴀᴡ   ， ／ ɴᴇᴠᴇʀ ᴏɴʟɪɴᴇ ⠀ （*＾ワ＾*）}$$
+⠀ $${\color{#610000}ʀᴇᴀᴅ ꜱᴛʀᴀᴡ   ， ／ ᴜɴᴅᴇʀ ᴛᴡᴇʟᴠᴇ ᴅɴɪ ⠀ ‧₊ ♪˚⊹}$$
 </p>
 
 <p align="center">
