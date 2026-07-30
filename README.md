@@ -5,7 +5,7 @@
 
 ─── ୨୧ ────── ୨୧ ────── ୨୧ ────── ୨୧ ────── ୨୧ ────── ୨୧ ────── ୨୧ ────── ୨୧ ───
 
-⠀ ![](https://komarev.com/ghpvc/?username=deathcock&abbreviated=true&label=vikings&color=A0C4E2)
+⠀ ![](https://komarev.com/ghpvc/?username=deathcock&abbreviated=true&label=drinks&color=andFF0000)
 
 
  
